@@ -9,3 +9,4 @@ Here is our video:
 
 【数字逻辑（CS207）春季期末project-VGA七巧板-哔哩哔哩】 https://b23.tv/YQsKIWa
 
+YouTube: https://youtu.be/eBKPPJBUe0Y
